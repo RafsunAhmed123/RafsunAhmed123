@@ -1,4 +1,5 @@
 ### Hi there 👋
+I am currently studying at Vanier College✌✌🏿
 
 <!--
 **RafsunAhmed123/RafsunAhmed123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
